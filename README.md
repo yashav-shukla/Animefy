@@ -1,1 +1,1 @@
-# Animefy
+# Animefy.
